@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SAPD940622HMCLRN07
+SAPD940622HMCLRN07
